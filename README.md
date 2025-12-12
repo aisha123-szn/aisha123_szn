@@ -3,6 +3,8 @@ Hi, I'm Aisha!🌸
 
 🧠 Computer Science at Old Dominion University 
 
+Still learning
+
 
 
 ## 🌐 Socials:
